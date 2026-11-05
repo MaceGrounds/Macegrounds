@@ -1,2 +1,2 @@
-![](https://files.catbox.moe/q5rmgo.png)
+![](https://files.catbox.moe/i0aif9.png)
 Links + profile are wip!!
